@@ -1,2 +1,2 @@
-Foraminifera is a microfossil is living in deep ocean
-
+Foraminifera is a microfossil is living in deep ocean and are great indicator of past environment 
+condition.
